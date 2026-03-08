@@ -1,0 +1,2 @@
+# PJATK-PGO-Cw1-s5320
+PJATK-PGO-Cw1-s5320 - Praca domowa
